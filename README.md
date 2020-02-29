@@ -1,3 +1,3 @@
 ### About Me
-Age: `16`<br>
-Discord: `Zero Calling#5260`
+Age: `17`<br>
+Discord: `Zᴇʀᴏ Cᴀʟʟɪɴɢ#6026`
