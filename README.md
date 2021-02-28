@@ -1,3 +1,3 @@
 ### About Me
-Age: `17`<br>
-Discord: `Zᴇʀᴏ Cᴀʟʟɪɴɢ#6026`
+Age: `18`<br>
+Discord: `Zᴇʀᴏ Hᴀᴢᴇʟ#2607`
