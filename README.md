@@ -1,3 +1,3 @@
 ### About Me
-Age: `18`<br>
-Discord: `Zᴇʀᴏ Hᴀᴢᴇʟ#2607`
+Age: `19`<br>
+Discord: `ZeroHazel#1720`
