@@ -1,3 +1,3 @@
 ### About Me
-Age: `20`<br>
-Discord: `ZeroHazel#2017`
+Age: `21`<br>
+Discord: `zerohazel`
